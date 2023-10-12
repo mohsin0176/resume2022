@@ -1,7 +1,1 @@
-13.10.2023		To																													The Principal																					Zirabo Residential School & College			Zirabo,Ashulia																			Subject :Application for the post of Assistant Teacher																								Dear sir, 																										 I am Md.Mohsin completed upto M.Sc in IT from Jahangirnagar University and currently corncerned from bdjobs.com about the circular of the post stated in subject line at Zirabo Residential School & College. I believe that with my communication skill, expertise in my field and dedicated nature I can be a good asset for your institution.Teaching is my passion and I believe in the latest methods of teaching instead of traditional methods.I have hand-on experience of lasted technical devices being used at educational institutes these days.
-I am much eager to introduce myself further if I get a chance to meet you in person.
-
-Regards,
-Md.Mohsin 													 Signature			 							Applicant's Informations 									Name:Md.Mohsin 																Father's Name:Md.Ramzan Ali 								Mother's Name:Mosammad Morium Begum 			Pr. Address:Pandoa Bazar(01760389641),20 mile,Savar,Dhaka.																				Per. Address:Pandoa Bazar(01760389641),20 mile,Savar,Dhaka.													 Religion:Islam 									Nationality:Bangladeshi 														DOB: 04-01-1992 																		NID:2858033950 																			Age:32																								 Phone:01760389641													 				 	    Academic_Qualifications																				Degree  	Subject  Institute  	 Result 		Year			
-M.Sc			IT					J.U.				Appeared 2017			   B.Sc     	   IT  				J.U. 				3.04			2016					H.S.C Science  J.U.School & College 5 2010		S.S.C Science  J.U.School & College 5 2008 		J.S.C Science  J.U.School & College 5 2005
-
+resume 2022
